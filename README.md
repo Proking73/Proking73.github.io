@@ -1,2 +1,2 @@
 # Proking73.github.io
-we are rad
+Roblox game tips and promo codes!
